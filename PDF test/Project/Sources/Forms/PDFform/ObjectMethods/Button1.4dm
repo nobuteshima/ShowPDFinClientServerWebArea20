@@ -1,0 +1,1 @@
+WA OPEN URL:C1020(*; "Web Area"; "about:blank")
